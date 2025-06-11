@@ -3,7 +3,7 @@
     
 - 👀 I’m interested in website development.
 - 🌱 I’m currently learning and building website .
-- 💞️ I’m looking to collaborate on major and minor project.
+- 🤝I’m looking to collaborate on major and minor project.
 - 📫 How to reach me:    📩 ochenjejoseph1@gmail.com
 
 
